@@ -27,6 +27,7 @@
 점심 메뉴는 김밥과 과일로 정했다.
 이제 고민이 모두 해결되었으니 두 손을 모으고 편히 눈을 감는다.
 알람에 잘 일어날 수 있기를
+![4242134_1](https://user-images.githubusercontent.com/92346855/184085409-4ebfd4f1-723c-4a29-89df-815a55b4f753.jpg)
 
 ### 오후 (13:00 ~ )
 ![img](https://t1.daumcdn.net/cfile/tistory/99E6C13359E4CA1126)  
